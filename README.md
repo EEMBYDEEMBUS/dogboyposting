@@ -23,11 +23,11 @@ DIGITAL CIR
 - bunnyteeth (jax x caine)
 - leapfrog (jax x ribbit)
 - funnybunny (jax x pomni)
-- royalteeth (caine x kinger)
+- royalteeth (caine x kinger. dont hurt me they are not related in my mind palace)
 - abstragedy (zooble x gangle)
 - ragapom (pomni x ragatha)
 - ribbonfloss (gangle x caine)
-- king's court / kinglebells (kinger x pomni)
+- king's court / kinglebells (kinger x pomni. dont hurt me shes a grown ass twenty five year old ass woman)
 
 
 DELTARU
