@@ -17,6 +17,7 @@ if you'd like a gift for yourself, feel free to request one from me! just be kin
 
 for the record, i really like THESE ships!!1;
 
+
 DIGITAL CIR
 - showtime (pomni x caine)
 - bunnyteeth (jax x caine)
@@ -28,6 +29,7 @@ DIGITAL CIR
 - ribbonfloss (gangle x caine)
 - king's court / kinglebells (kinger x pomni)
 
+
 DELTARU
 - tvteeth (tenna x caine HAHDFDKAFVBDSKA)
 - spamtenna (spamton x tenna FRICKIN DELTARUNE)
@@ -35,6 +37,7 @@ DELTARU
 - spamtennaton (spamton x tenna x mettaton)
 - queentenna (queen x tenna)
 - spamton and jevil and tenna's weirdass polycule
+
 
   UNDERTAEL
 - afterdeath (geno x. reaper. sans. im sorry im a sanscest enjoyer PLEASE dont treat it and incest as the same THEY ARE NOT )
@@ -46,6 +49,7 @@ DELTARU
 - papytennaton...? (experimental. papyrus x mettaton x tenna)
 - sans x nagito
 
+
 OTHER
 - copperwire (rust x zero_one the living tombstone)
 - tombcule (all of the living tombsonas together)
@@ -54,6 +58,7 @@ OTHER
   im sorry karem i luv u im just a phonegingi truther ,, wailing ,.......
 - scollace (scott pilgrim x wallace wells from. well )
 - freelance husbands (sam x max from sam & max)
+
 
 FIVE NIGHT AT FR
 - fanon fnaf jeremike (i like a CERTAIN NIGHTGUARDS AU but i DESPISE its creator. do not get it twisted dawg i'd lose my MARBLES  and a tooth or two if i saw em)
@@ -66,6 +71,7 @@ FIVE NIGHT AT FR
 - aucfnaftl william x henry
 - also just william x henry in general but ESPECIALLY that iteration of them
 - distress signal (sotm arnold x dispatch)
+
 
 SIDE NOTE:
 - bugsnax ships pending............
