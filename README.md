@@ -1,8 +1,7 @@
 # dogboyposting
 
 okay #1 thing pLEAAAASE read my dni in my pronouns cc !! and be civilised please . be nice tew me im doing my best
-dont harass me in whispers on ponytown, im not there to argue with anybody. if you have a problem, either block me/my chat or be gentle because i have a LOT going on in my life as is. you have. literally zero idea
-basically, iwc at all times to everyone i dont know, and if you're kind i will be as well
+dont harass me in whispers on ponytown, im not there to argue with anybody. if you have a problem, either block me/my chat or be gentle because i have a LOT going on in my life as is. you have. literally zero idea . basically, iwc at all times to everyone i dont know, and if you're kind i will be as well
 
 if you're someone who i've known in the past who has an issue to bring up with me, be nice and keep it in whispers. but i really would rather you not contact me at all ideally
 
