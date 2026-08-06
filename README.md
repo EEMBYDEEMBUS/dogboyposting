@@ -25,8 +25,6 @@ DIGITAL CIR
 - bunnyteeth (jax x caine)
 - um. jax x evil jax x thomas
 - leapfrog (jax x ribbit)
-- funnybunny (jax x pomni)
-- royalteeth (caine x kinger. dont hurt me they are not related in my mind palace)
 - abstragedy (zooble x gangle)
 - ragapom (pomni x ragatha)
 - ribbonfloss (gangle x caine)
